@@ -1,0 +1,1 @@
+# Seegency-svg-logo
